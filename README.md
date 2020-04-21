@@ -7,6 +7,7 @@ PS：APP在各大应用商店均可下载！
 
 
 新人免单：新人免单可以免费领取一些小东西，不领白不领对吧！（注册完成2天后貌似就失效了，所以速度）
+
 ![](https://tva3.sinaimg.cn/large/be053e8bgy1ge1sqrzj04j20dw06etc3.jpg)
 
 
